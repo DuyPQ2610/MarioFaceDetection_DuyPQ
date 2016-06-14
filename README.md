@@ -1,2 +1,2 @@
 # MarioFaceDetection_DuyPQ
-Handsome boy, fashionista boy ,fanboy GD
+Make Fire, Mushroom,Music for mario.
